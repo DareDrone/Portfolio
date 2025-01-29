@@ -28,7 +28,7 @@ I am always open to feedback, collaboration, and new opportunities in the **Busi
 
 ## 🌐 **Connect with Me**
 
-- [[LinkedIn](https://www.linkedin.com/in/rafay-khan-businessanalyst1209/)
+- [LinkedIn](https://www.linkedin.com/in/rafay-khan-businessanalyst1209/)
 - [Email] rafayuk007@gmail.com
 
 ---
